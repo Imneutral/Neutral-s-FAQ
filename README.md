@@ -1,4 +1,4 @@
-# Neutral-s-FAQ
+# Neutrals-FAQ
 
 # Frequently Asked Questions
 
