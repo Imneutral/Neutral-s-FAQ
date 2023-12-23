@@ -14,3 +14,5 @@
 i studied from arjuna 2024 from pw then from kota vidyapeeth Now i am at home and also completing my boards
 # My Study Technique
 I follow 60/10 pomo. My study session is 60 minutes. Then a break of 10 minutes and a long break after 4 slots
+# Why did you start streaming?
+no one was there to keep an eye on me and stop me from getting distracted. Inspired by James Scholz, I started to live stream, and it's been great.
